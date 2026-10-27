@@ -1,2 +1,0 @@
-# studynew
-i just study
